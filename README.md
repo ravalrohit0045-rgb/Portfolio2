@@ -1,4 +1,4 @@
-video link :
+video link : https://drive.google.com/drive/folders/1tOEPfSMUbMQZWMEwWGLy31331nNoiI5Y?usp=sharing
 
 <img width="1892" height="908" alt="Screenshot 2026-05-27 123228" src="https://github.com/user-attachments/assets/d4dd83b8-5134-4007-a3bc-cf1d5fe93a3d" />
 <img width="1890" height="899" alt="Screenshot 2026-05-27 123402" src="https://github.com/user-attachments/assets/9ed955ef-a737-4dd6-8c89-a7b6ee179aa5" />
